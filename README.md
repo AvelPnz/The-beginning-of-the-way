@@ -1,3 +1,3 @@
-# The-beginning-of-the-way
+# The-beginning-of-the-way (Попытка справиться с конфликтами)
 
-test
+Ты не бойся, они не так страшны, как кажутся)
